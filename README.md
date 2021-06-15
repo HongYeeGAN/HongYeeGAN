@@ -6,3 +6,4 @@
 - 💬 I have attended Data Science Immersive course with General Assesmebly. Ask me about it!
 - 📫 Here is my contact. My email is osofunnie@gmail.com | linkedin: https://www.linkedin.com/in/hongyeegan/
 - ⚡ Fun fact: I am also interested in making a website, trying it during my free time for fun
+- 🐻 Due to business conduct guidelines, I am unable to share projects related to my work experiences here
